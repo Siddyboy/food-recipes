@@ -10,7 +10,7 @@ A batch makes 12 to 15 jam jars worth depending on size - filled to brim.
 
 A total of 1.5 kg fruit per batch.
 
-Lemons (1 to 4 ratio of lemons to other fruit.)
+Lemons (1 to 3 ratio of lemons to other fruit.)
 
 - Seville oranges
 - Grapefruit is required
