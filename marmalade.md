@@ -83,6 +83,6 @@ Year   | Comments
 2015   | SCJK + CJCK Four batches over two days. Two orange, and two orange and grapefruit.
 2016   | SCJK + MK Four batches over two days. One orange, two orange and grapefruit (one with two grapefruits and one with one), one with orange and ginger (bought 150g of root ginger, 130g once peeled and chopped finely. Added to fruit once on the boil.) Took about 25 min to set.
 2017 | No comments!
-2018 | No comments!
+2018 | Three batches, all lemon and orange. Batch 2 had diced ginger in syrup added.
 2019 | A fallow year - enough in stock. Ran low at year end.
 2020 | Who knows.
