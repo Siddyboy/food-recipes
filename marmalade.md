@@ -87,5 +87,5 @@ Year   | Comments
 2019 | A fallow year - enough in stock. Ran low at year end.
 2020 | Batch 1: lemon and orange, James weighed nearly 400 g of lemons. Lemony taste! 30 min boil. Good set. 11 jars.
 2020 | Batch 2: lemon and orange <375 g lemons. Good set. 11.5 jars.
-2020 | Batch 3: lemon and orange/grapefruit (2 x pink), chopped, depipped and frozen.
+2020 | Batch 3: lemon and orange/grapefruit (2 x pink), chopped, depipped and frozen. Cooked later. Slightly burnt. Tastes OK.
 2020 | Batch 4: lemon and orange with ginger. Added ginger once peel boiling. Extra long boil because we didn't hear cooker timer. Good set.
