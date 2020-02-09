@@ -1,9 +1,5 @@
 # Broccoli and Blue Cheese Pasta Bake
 
-From unstuffed.org.uk
-
-SCJK normally leaves out the mustard. Puke.
-
 Serves 2(4) adults
 
 ## Ingredients
@@ -14,8 +10,8 @@ Serves 2(4) adults
 
 ### Sauce
 
-- Unsalted butter 25(75) g
-- Plain white flour 25(75) g
+- Unsalted butter 25(75) g*
+- Plain white flour 25(75) g*
 - Semi-skimmed milk 250(750) ml
 - Blue cheese 50(150) g
 - Dijon mustard 15(zero!) g
@@ -44,3 +40,11 @@ Serves 2(4) adults
 1. Transfer the broccoli and pasta to a medium ceramic dish. Sprinkle with breadcrumbs and cheese, then bake until the top is golden brown.
 
 1. Serve with salad leaves dressed in lemon juice and olive oil.
+
+## Notes
+
+From unstuffed.org.uk
+
+SCJK normally leaves out the mustard. Puke.
+
+* If tripling the recipe you don't need to triple the roux. Try doubling? SCJK 9 Feb 2020.
