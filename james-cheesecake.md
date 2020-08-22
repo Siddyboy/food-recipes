@@ -10,7 +10,7 @@ Cooking time: none but some time in the fridge TBC
 
 ## Ingredients
 
-- Raspberries, blitzed 200 g
+- Raspberries, blitzed and seived 200 g
 - Ginger loaf cake 60 g
 - Full fat mascarpone cheese 200 g
 - Full fat creme fraiche 200 g
