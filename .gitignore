@@ -1,0 +1,24 @@
+.DS_Store
+*~
+
+#generated files
+
+*.tmphtml
+*.tmpmd
+*.ppmd
+*.html
+*.pdf
+templates/template-xelatex.aux
+templates/template-xelatex.fdb*
+templates/template-xelatex.fls
+templates/template-xelatex.log
+Makefile.depends
+
+#required includes
+articles/includes/
+articles/media/
+site_libs/
+templates/
+
+#Eclipse Users
+.project
