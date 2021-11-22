@@ -3,7 +3,9 @@
 ## Quantities
 
 1x recipe makes c4 lb (=55/60 mince pies)
+
 2x recipe makes 7x 1 lb Kilner small jarsful
+
 5 small Kilner jarsful give 14 doz pies with [3 kg flour/scant 1 1/2 kg fat] pastry.
 
 ## Ingredients
