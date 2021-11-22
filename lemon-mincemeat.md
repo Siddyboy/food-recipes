@@ -10,10 +10,12 @@ Serve some people?
 - Dried mixed fruit 1 lb
 - Vegetable suet 8 oz (250 g)
 - Salt - pinch
+
 One level teaspoonful (_not_ a measuring spoon) each of
-- Ground cloves
-- Nutmeg
-- Ginger
+  - Ground cloves
+  - Nutmeg
+  - Ginger
+
 - Cooking sherry 1/4 pint
 
 ## Method
