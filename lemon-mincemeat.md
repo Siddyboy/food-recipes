@@ -34,5 +34,12 @@ One level teaspoonful (_not_ a measuring spoon) each of
 
 ## Notes
 
-- From Marian Kingsley. Bit short on detail. Grate zest? Refrigerate afterwards?
-- Needs converting to metric at some point.
+Contains no nuts.
+
+Extra sultanas in mix of fried fruits make it jucier.
+
+Small jars are handier for retrieving the mincemeat.
+
+I have kept it for a year and it was fine, stored in very clean (dishwashed) dry jars in a dark cool cupboard, but it does taste better when younger - more individual flavours.
+
+2009 C.A.M.W.
