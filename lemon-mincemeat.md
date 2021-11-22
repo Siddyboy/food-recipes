@@ -1,6 +1,10 @@
 # Lemon Mincemeat
 
-Serve some people?
+## Quantities
+
+1x recipe makes c4 lb (=55/60 mince pies)
+2x recipe makes 7x 1 lb Kilner small jarsful
+5 small Kilner jarsful give 14 doz pies with [3 kg flour/scant 1 1/2 kg fat] pastry.
 
 ## Ingredients
 
@@ -17,15 +21,13 @@ One level teaspoonful (_not_ a measuring spoon) each of
 - Nutmeg
 - Ginger
 
-
-
 ## Method
 
-1. Pare the peel from the lemons very thinly and boil with the cream.
+1. Peel rind thinly from lemons. Simmer gently till soft. Drain + mince into a large bowl with the sugar.
 
-1. Let it cool and when luke warm add the lemon juice sweetened with sugar.
+1. Mince peeled + cored apples + add, + dried fruit, suet, salt + spices. Mix well + add juice of 3 lemons + sherry.
 
-1. Pour mixture over macarooms placed in a glass dish.
+1. Stir thoroughly + pack into clean dry jars to within 1" of top. Cover, label + store in a cool dark place until required.
 
 
 ## Notes
