@@ -42,3 +42,5 @@ From Giorgio Locatelli
 The true cured pork to use for carbonara is guanciale, which comes from the cheek, and has less fat than pancetta. Don't cut it too finely or regularly, as you want a nice chunk to bite into every now and then amid the silkiness of the egg.
 
 Some people add the eggs and cheese to the pan, but it is easy to underestimate the heat of the pan, and the danger is always that the eggs will scramble. So I prefer to mix the eggs and cheese in a warm bowl and then tip in the hot spaghetti, which will cook the eggs but keep their silkiness.
+
+SCJK says - easy on the salt, there's loads in the bacon.
