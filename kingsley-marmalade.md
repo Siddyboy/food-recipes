@@ -90,4 +90,8 @@ Year   | Comments
 2020 | Batch 3: lemon and orange/grapefruit (2 x pink), chopped, depipped and frozen. Cooked later. Slightly burnt. Tastes OK.
 2020 | Batch 4: lemon and orange with ginger. Added ginger once peel boiling. Extra long boil because we didn't hear cooker timer. Good set.
 2021 | A fallow year. Ran out in December 2021.
-2022 | Batch ...
+2022 | Batch 1: lemon and orange.
+2022 | Batch 2: lemon and orange with 2 pink grapefruit.
+2022 | Batch 3: lemon and orange with 1 pink grapefruit and 2 jars of ginger in syrup.
+2022 | Batch 4: lemon (435 g) and orange with 1 pink grapefruit.
+
