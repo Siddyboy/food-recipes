@@ -30,7 +30,7 @@ Can be made the night before and chilled.
 12. Chill the fillet for 15 min to firm up while you prep the pastry.
 13. Fresh cling film, pastry on top.
 14. Unravel the fillet from its cling film and sit it in the centre of the pastry.
-15. Roll up again in cling film.
+15. Roll up again in cling film tucking in the ends of the pastry like a parcel.
 16. Chill for 5 minutes or overnight.
 17. Heat the oven to 200 C
 18. Glaze all over with egg yolk and, using the back of a knife, mark the beef Wellington with long diagonal lines taking care not to cut into the pastry.
