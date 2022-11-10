@@ -19,7 +19,7 @@ Can be made the night before and chilled.
 
 1. Season beef with salt and pepper.
 2. Quickly sear in hot pan with olive oil.
-3. Remove and sit on a plate. Spread with English mustard.
+3. Remove and sit on a plate. Spread with English mustard while still hot.
 4. Chop chestnut mushrooms, garlic, chestnuts and salt and pepper as finely as possible so they have the texture of coarse breadcrumbs.  You can use a food processor to do this, but make sure you pulse-chop the mushrooms so they don’t become a slurry.
 5. Cook mixture in a large dry pan until moisture is removed, (about 10 minutes), adding fresh thyme.
 6. Remove the mushroom duxelle from the pan to cool on a baking tray and discard the thyme.
