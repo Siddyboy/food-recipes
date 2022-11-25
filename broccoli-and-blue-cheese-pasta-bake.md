@@ -17,6 +17,12 @@ Serves 2(4) adults
 - Dijon mustard 15(zero!) g
 - Ground black pepper pinch or three
 
+### Topping
+
+- Brocolli 150(450) g
+- Breadcrumbs 25(75) g
+- Hard cheese 20(60) g
+
 ### Salad
 
 - Salad leaves 80 g
