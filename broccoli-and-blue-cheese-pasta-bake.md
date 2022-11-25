@@ -53,4 +53,4 @@ From unstuffed.org.uk
 
 SCJK normally leaves out the mustard. Puke.
 
-* If tripling the recipe you don't need to triple the roux. Try doubling? SCJK 9 Feb 2020.
+* If tripling the recipe you don't need to triple the roux.  Try doubling? SCJK 9 Feb 2020.  Doubling worked well SCJK 25 Nov 2022.
