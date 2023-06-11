@@ -4,19 +4,18 @@ Serve some people.
 
 ## Ingredients
 
-- Cream 1 pt
-- Sugar 6 oz
+- Single cream 600 ml
+- Caster sugar 180 g
 - Lemons 2
-- Macaroons (?)
+- Amaretti biscuits
 
 ## Method
 
-1. Pare the peel from the lemons very thinly and boil with the cream.
+1. Pare the peel from the lemons very thinly (or just zest) and boil with the cream.
 
-1. Let it cool and when luke warm add the lemon juice sweetened with sugar.
+1. Let it cool and when luke warm add the lemon juice and sugar.
 
-1. Pour mixture over macarooms placed in a glass dish.
-
+1. Pour mixture over biscuits placed in a glass dish.
 
 ## Notes
 
