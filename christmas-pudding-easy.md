@@ -1,31 +1,33 @@
-# Perfect Christmas pudding
+# Easy Christmas pudding
 
-A classic Christmas pudding recipe with dark, rich fruit and a hidden surprise. Quinces add a delicious fragrance if you can get hold of them.
+Recipe for Christmas Pudding used for Stir-Up Sunday 2023.
+These quantities are for five times the original recipe.
 
-Preparation time: overnight.
+Preparation time: None.
 
-Cooking time: over 2 hours. Serves: Serves 8
+Cooking time: over 2 hours. Serves: Makes 12 puddings in 0.6 L basins
 
 ## Ingredients
 
-- Sultanas 350 g
-- Raisins or currants 350 g
-- Dried figs, chopped 150 g
-- Candied peel 125 g
-- Dried apricots 100 g
-- Dark glace cherries, halved 75 g
-- Brandy 150 ml
-- Ginger in syrup, chopped 100 g
-- Syrup from ginger 2 tbsp
-- Apples or quinces, grated 2
-- Oranges, juice and zest 2
-- Eggs, beaten 6
-- Shredded suet 250 g
-- Soft muscovado sugar 350 g
-- Fresh breadcrumbs 250 g
-- Self-raising flour 175 g
-- Mixed spice 1 tsp
-- Old sixpences or coins 2 (optional!)
+- Sultanas 1.25 L
+- Raisins 1.25 L
+- Self-raising flour 1.25 L
+- Butter finely grated 575 g
+- Fresh breadcrumbs whole brown loaf
+- Light muscovado sugar 1.25 L
+- Mixed nuts 1.25 L
+- Ground cinnamon 5 tsp
+- Ground mixed spice 5 tsp
+- Milk 1.25 L
+- Eggs 5 large beaten
+- Butter for greasing
+
+### For the butterscotch sauce (for one times the original recipe).
+
+- Butter 85 g
+- Light muscovado sugar 100 g
+- Double cream 200 ml
+- Vanilla extract 1 tsp
 
 ## Method
 
