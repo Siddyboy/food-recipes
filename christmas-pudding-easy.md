@@ -2,9 +2,9 @@
 
 Recipe for Christmas Pudding used for Stir-Up Sunday 2023.
 
-Preparation time: None.
+Preparation time: 2 hrs and 45 mins - 3 hrs, including steaming.
 
-Cooking time: over 2 hours. Serves: Makes 12 puddings in 0.6 L basins
+Serves: 8 - 10 (see notes)
 
 ## Ingredients
 
@@ -37,9 +37,7 @@ Cooking time: over 2 hours. Serves: Makes 12 puddings in 0.6 L basins
 ## Notes
 
 - From BBC Good Food website. 'Easy Christmas Pudding'.
-- Quantities for pudding are for five times original recipe.
-- Quantities for sauce are for a single batch.
-- Original quantities fill
+- Quantities in brackets are for five times original recipe.  These filled 12 off 0.6 L pudding bowls on Stir Up Sunday 2023.  Cost about £50 for bowls and ingredients.
 - One cup defined here as 250 ml.
-- Used Kate Hedges large aluminium mixing bowl.
+- Used Kate Hedges' large aluminium mixing bowl.
 
