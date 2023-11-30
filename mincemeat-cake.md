@@ -4,15 +4,15 @@ Serves 8
 
 ## Ingredients
 
-- Plain flour 220 g
-- Caster Sugar 120 g
-- Light muscovado sugar 120 g
-- Sunflower or vegetable oil 140 ml
-- Baking powder 1/2 tsp
-- Bicarbonate of soda 1/2 tsp
-- Beaten egg 1
-- Full cream milk 200 ml
-- Mincemeat 4 lightly heaped tbsp (230 g)
+- Plain flour 220 g (440 g)
+- Caster Sugar 120 g (240 g)
+- Light muscovado sugar 120 g (240 g)
+- Sunflower or vegetable oil 140 ml (280 ml)
+- Baking powder 1/2 tsp (1 tsp)
+- Bicarbonate of soda 1/2 tsp (1 tsp)
+- Beaten egg 1 (2)
+- Full cream milk 200 ml (400 ml)
+- Mincemeat 4 (8) lightly heaped tbsp (230 g) (460 g)
 
 ## Method
 
