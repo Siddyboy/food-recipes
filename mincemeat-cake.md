@@ -12,7 +12,7 @@ Serves 8
 - Bicarbonate of soda 1/2 tsp (1 tsp)
 - Beaten egg 1 (2)
 - Full cream milk 200 ml (400 ml)
-- Mincemeat 4 (8) lightly heaped tbsp (230 g) (460 g)
+- Mincemeat 230 g (460 g), [4 (8) lightly heaped tbsp]
 
 ## Method
 
