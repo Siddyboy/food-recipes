@@ -1,6 +1,6 @@
 # Slow Cooker Lamb Shanks
 
-Serves 6 easily
+Serves 6
 
 ## Ingredients
 
@@ -33,7 +33,7 @@ Serves 6 easily
 
 7. Pour the stock into the same pan and bring it to a boil, then tip into the slow cooker.
 
-8. Add the carrots garlic, bay leaves, thyme and parsley stalks to the slow cooker and put the lid on.
+8. Add the carrots, garlic, bay leaves, thyme and parsley stalks to the slow cooker and put the lid on.
 
 9. Cook on low for eight hours or on high for four hours. Turn the shanks over at some point during the cooking.  After eight hours the lamb should be tender and starting to fall off the bone.
 
