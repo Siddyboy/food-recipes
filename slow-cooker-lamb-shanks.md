@@ -1,44 +1,44 @@
-# Slow Cooker Beef Shin
+# Slow Cooker Lamb Shanks
 
-Serves 8 easily
+Serves 6 easily
 
 ## Ingredients
 
-- Shin of beef 1 kg
-- Carrots 8 large
-- Onions 4
-- Celery 4 sticks
-- Garlic 2 cloves
-- Tinned tomatoes 800 g (2 tins)
-- Tomato puree 2 tbsp
-- Cornflour 4 tbsp (60 ml)
-- Beef stock cube
-- Bay leaves 2 (or rosemary or thyme)
-- Caremalised onion chutney 2 tbsp 
+- Lamb shanks 6
+- Olive oil 3 tbsp
+- Onions (finely chopped) 2
+- Tomato puree 3 tbsp
+- Light red wine (e.g. pinot noir) 375 ml
+- Plain flour 3 tbsp
+- Stock (vegetable, chicken or lamb) 750 ml
+- Carrots (chopped) 3
+- Garlic cloves (peeled) 3
+- Bay leaves 3
+- Thyme sprigs 3
+- Parsley (leaves chopped separately to stalks) 1 bunch
 
 ## Method
 
-1. Preheat the slow cooker to high.
+1. If you need to preheat your slow cooker then turn it on now.
 
-1. Peel and cut the onion into 2 cm chunks.  Wash carrots and celery and cut into similar sized pieces.  Peel and very finely chop the garlic.
+2. In a large hot frying pan, add half the oil and brown the lamb shanks all over, then transfer them to the slow cooker. This will take you about 10 mins and you may need to do it in batches.
 
-1. Add the vegetables to the slow cooker, along with the bay leaves.  Add the beef.
+3. Add the remaining oil to the frying pan and fry the onion gently until it starts to turn translucent.
 
-1. Stir the cornflour into 400 ml cold water.  Add the stock cube and tomato puree.
+4. Stir in the tomato purée and flour and cook for a minute.
 
-1. Add the cornflour mixture to the slow cooker along with the tinned tomatoes and onion chutney if using.  Mix well.
+5. Add the red wine and bring it to a boil, stirring the flour and purée into the wine until you have a smooth sauce around the onion pieces.
 
-1. Cook for 4-6 hours on high or 8-10 hours on low.
+6. Tip into the slow cooker.
+
+7. Pour the stock into the same pan and bring it to a boil, then tip into the slow cooker.
+
+8. Add the carrots garlic, bay leaves, thyme and parsley stalks to the slow cooker and put the lid on.
+
+9. Cook on low for eight hours or on high for four hours. Turn the shanks over at some point during the cooking.  After eight hours the lamb should be tender and starting to fall off the bone.
+
+11. If the sauce is too thin lift out the lamb and carrots and tip the sauce into a pan, boil it rapidly until it starts to thicken before adding the parsley.
 
 ## Notes
 
-1. Can add other veg - swede, leeks, parsnips all work.
-
-2. Can cook beef on the bone.
-
-3. All quantities here doubled from original recipe.
-
-4. Could try red wine or stout instead of water.
-
-5. SCJK added salt and pepper.
-
+1. From BBC Good Food recipe but increased quantities by 50%.
