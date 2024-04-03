@@ -41,4 +41,5 @@ Serves 6
 
 ## Notes
 
-1. From BBC Good Food recipe but increased quantities by 50%.
+1. From BBC Good Food recipe but increased quantities by 50%.  This amount fits nicely in the slow cooker.
+2. Needed a little seasoning and a little thickener.  Possibly increase the flour next time?
