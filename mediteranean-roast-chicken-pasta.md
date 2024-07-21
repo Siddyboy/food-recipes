@@ -30,7 +30,7 @@ Serves a family!
 
 1. Oven for 1h20m. Top up water if it dries out.
 
-1. Baste chicken with juices.  Put chicken back in over in a separate dish.
+1. Baste chicken with juices.  Put chicken back in oven in a separate dish.
 
 1. Pull toms off vine and mush up on hob. Add balsamic vinegar.
 
