@@ -38,3 +38,4 @@ Makes 18 to 20 buns
 ## Notes
 
 1. They freeze well.
+2. In 2024 this mixture made 16 good size buns.  Used some random dried cherries and dates with the mixed fruit.
