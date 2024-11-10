@@ -8,19 +8,19 @@ Serves 8
 
 ## Ingredients
 - Unsalted butter, for greasing
-- Medjool dates 150 g
-- Dried apricots 150 g
-- Pecan nuts 150 g
-- Crystallized ginger 75 g
-- Fresh rosemary 1 small sprig
-- Dried cranberries 150 g
-- Raisins 150 g
-- Suet 150 g
-- Plain flour 150 g
-- Fresh breadcrumbs 75 g
-- Semi-skimmed milk 200 ml
-- Free-range egg 1 large
-- Clementine 1
+- Medjool dates 150 g (900 g)
+- Dried apricots 150 g (900 g)
+- Pecan nuts 150 g (900 g)
+- Crystallized ginger 75 g (450 g)
+- Fresh rosemary 1 small sprig (6 sprigs?)
+- Dried cranberries 150 g (900 g)
+- Raisins 150 g (900 g)
+- Suet 150 g (900 g)
+- Plain flour 150 g (900 g)
+- Fresh breadcrumbs 75 g (450 g)
+- Semi-skimmed milk 200 ml (1.2 L)
+- Free-range egg 1 large (6 large)
+- Clementine 1 (6)
 - Golden syrup
 - Barrel-aged Bourbon
 
