@@ -11,7 +11,7 @@ I’ve kept things fairly gentle on the spice front so that all my kids will giv
 I’m also giving you a cheat’s naan, which all my kids fight over.
 
 ## Ingredients
-- Madras currey paste - 1 heaped teaspoon
+- Madras curry paste - 1 heaped teaspoon
 - Olive oil
 - Red wine vinegar
 - Parsnip 1
