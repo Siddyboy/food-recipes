@@ -56,3 +56,7 @@ Serves 8, cooks in 3 h 40 m plus cooling and resting
 ## Notes
 
 Christmas 2023.  4.4 kg. Roasted for 180 min at 180 C.  Calculated from this recipe and leaflet with turkey.  Rested for 90 min - worked very well.  Result OK but a bit dry.  Need to pin skin back down after putting stuffing underneath otherwise stuffing expands and falls out.
+
+Christmas 2024.  4.0 kg bird plus 0.5 kg stuffing.  Did Max -> 180 C for 180 minutes - way too much.  The bread in the stuffing burns easily!  Don't overstuff - the skin splits.  Use most stuffing for balls.  Also make your own pigs-in-blankets - chipolatas and streaky bacon.
+
+Try 220 C to 160 C for unstuffed weight only.   
