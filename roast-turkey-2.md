@@ -59,4 +59,4 @@ Christmas 2023.  4.4 kg. Roasted for 180 min at 180 C.  Calculated from this rec
 
 Christmas 2024.  4.0 kg bird plus 0.5 kg stuffing.  Did Max -> 180 C for 180 minutes - way too much.  The bread in the stuffing burns easily!  Don't overstuff - the skin splits.  Use most stuffing for balls.  Also make your own pigs-in-blankets - chipolatas and streaky bacon.
 
-Try 220 C to 160 C for unstuffed weight only.   
+Try 220 C to **160 C** for unstuffed weight only.   
