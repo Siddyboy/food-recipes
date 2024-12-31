@@ -3,7 +3,7 @@
 Serves 4
 
 ## Ingredients
-- Lmab shoulder, neck, or leg, cut into chunks 900 g
+- Lamb shoulder, neck, or leg, cut into chunks 900 g
 - Olive oil 1 tbsp
 - Onion, chopped 1
 - Carrots cut into chunks 3
