@@ -22,7 +22,7 @@ Serves 4
 2.  Fry the lamb in the oil in batches and tip into the slow cooker.
 3.  (White the lamb fries see step 8.)
 4.  Fry the onion in the same pan for 5 minutes or until it softens a little.
-5.  Add the carrots and spices to the pan and stir everthing together.
+5.  Add the carrots and spices to the pan and stir everything together.
 6.  Add the tomato puree, stock cube, and 250 ml water and swirl everything around in the pan.
 7.  Tip into the slow cooker.
 8.  Add the sweet potato, dried cherries, honey, and another 500 ml water.
@@ -31,3 +31,4 @@ Serves 4
 
 ## Notes
 1. From BBC Good Food.  Made lots of times - tasty.
+2. Method could be streamlined?
