@@ -94,4 +94,9 @@ Year   | Comments
 2022 | Batch 2: lemon and orange with 2 pink grapefruit.
 2022 | Batch 3: lemon and orange with 1 pink grapefruit and 2 jars of ginger in syrup.
 2022 | Batch 4: lemon (435 g) and orange with 1 pink grapefruit.
+2023 | Fallow?
+2024 | Fallow?
+2025 | Batch A: lemon and orange. 10 jars
+2025 | Batch B: lemon, orange, and ginger. 10 jars. About 6 ginger balls and quarter of a jar of syrup.
+2025 | Batch C: lemon, orange, and one big red grapefruit.  Added few 100 mL of blended scotch after set acheived. 12 jars.
 
