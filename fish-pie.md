@@ -12,7 +12,7 @@ Serves 6.
 - Potatoes 5 large
 - Free-range eggs 2 large
 - Baby spinach 2 large handfuls
-- Oonion 1
+- Onion 1
 - Carrot 1
 - Olive oil
 - Double cream 250 ml
