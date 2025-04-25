@@ -1,44 +1,44 @@
-# Christmas Pudding (Jamie Oliver)
+# Fantastic Fish Pie
 
-With dried fruit, pecans, ginger, rosemary, Bourbon & golden syrup.
+The whole fish pie thing is one of the most homely, comforting and moreish dinners I can think of.
+This is a cracking recipe which does it for me.
 
-4 hrs 30 mins.
+1 hr plus cooling.
 Not Too Tricky.
-Serves 8
+Serves 6.
 
 ## Ingredients
-- Unsalted butter, for greasing
-- Medjool dates 150 g (900 g)
-- Dried apricots 150 g (900 g)
-- Pecan nuts 150 g (900 g)
-- Crystallized ginger 75 g (450 g)
-- Fresh rosemary 1 small sprig (6 sprigs?)
-- Dried cranberries 150 g (900 g)
-- Raisins 150 g (900 g)
-- Suet 150 g (900 g)
-- Plain flour 150 g (900 g)
-- Fresh breadcrumbs 75 g (450 g)
-- Semi-skimmed milk 200 ml (1.2 L)
-- Free-range egg 1 large (6 large)
-- Clementine 1 (6)
-- Golden syrup
-- Barrel-aged Bourbon
+
+- Potatoes 5 large
+- Free-range eggs 2 large
+- Baby spinach 2 large handfuls
+- Oonion 1
+- Carrot 1
+- Olive oil
+- Double cream 250 ml
+- Mature Cheddar or Parmesan cheese
+- Lemon 1
+- English mustard 1 heaped teaspoon
+- Fresh flat-leaf parsley 1 large handful
+- Haddock or cod fillet, skin off, pin-boned, from sustainable sources 450 g
+- Nutmeg, for grating 1 whole (optional)
 
 ## Method
 
-1. Grease a 1.5 litre pudding bowl with butter.
-2. Destone your dates, then, by hand or in a food processor, finely chop the flesh with the apricots, pecans, ginger and rosemary leaves.
-3. Place it all in a mixing bowl with the cranberries, raisins, suet, flour, breadcrumbs and milk.
-4. Crack in the egg, finely grate in the clementine zest, squeeze in the juice and mix it all together really well.
-5. Tip the mixture into the greased bowl and cover with a single layer of greaseproof paper and a double layer of tin foil.
-6. Tie a piece of string around the bowl to secure them in place and make it watertight, then sit it in a large, deep saucepan and pour in enough water (into the saucepan, not the pudding!) to come halfway up the sides of the bowl.
-8. Bring the water to the boil, cover the pan with a tight-fitting lid, and reduce to a simmer for 4 hours. Check the water regularly, and keep topping it up with boiling water, if needed.
-9. When the time’s up, lift out the bowl, remove the foil and paper, then carefully turn the pudding out on to a plate ready to serve, or leave to cool and reheat just before you need it.
-10. You can either drizzle it with golden syrup and a swig of Bourbon – gorgeous – or be a bit more flamboyant and gently heat a good few swigs of Bourbon just to warm it, then strike a match to the pan (stand back!), let it flame, and carefully pour it over your pudding.
-11. Present it to your guests and sing some Christmassy songs, then when the flame subsides drizzle with golden syrup. Serve with cream, custard or even ice cream.
+1. Preheat the oven to 230 C.
+1. Peel and dice the potatoes into 2.5cm chunks, then put into boiling salted water and bring back to the boil for 2 minutes.
+1. Carefully add the eggs to the pan and cook for a further 8 minutes, or until hard-boiled, by which time the potatoes should also be cooked.
+1. At the same time, steam the spinach in a colander above the pan. This will only take a minute. When the spinach is done, remove from the colander and gently squeeze out any excess moisture.
+1. Drain the potatoes in the colander. Remove the eggs, cool under cold water, then peel and quarter them. Place to one side.
+1. Peel and finely chop the onion, then peel, halve and finely chop the carrot.
+1. In a separate pan, slowly fry the onion and carrot in a little oil for about 5 minutes, then add the double cream and bring just to the boil.
+1. Remove from the heat and finely grate in 2 good handfuls of cheese, then squeeze in the lemon juice and stir through the mustard.
+1. Pick and finely chop the parsley and stir into the cream mixture.
+1. Slice the fish into strips then place in an earthenware dish with the spinach and eggs and mix together, pouring over the creamy vegetable sauce.
+1. The cooked potatoes should be drained and mashed - add a bit of oil, sea salt, black pepper and a touch of nutmeg (if using).  Spread on top of the fish.  Don't bother piping it to make it look pretty - it's a homely hearty thing.
+1. Place in the oven for 25 to 30 minutes, or until the potatoes are golden.
+1. Serve with some nice peas or greens, not forgetting your baked beans and tomato ketchup.  Tacky but tasty, and that's what I like.
 
 ## Notes
 
-1. Recipe From Jamie Oliver's Christmas Cookbook.  He says: "This is based on my dear Nan’s beautiful pudding recipe, which gives you a much lighter result than a traditional Christmas pud. It has more dynamic flavours, and is super-easy to make – this is exactly the way I like it best. Enjoy!"
-2. Taken part in Stir-Up Sunday? Then make sure you carefully store your beautiful Christmas pudding, so you don't run the risk of it going mouldy. Once you've steamed and totally cooled it, replace the greaseproof paper and tin foil with a fresh set and seal it super tightly, so it's airtight. Then store it in a cool, dry place until you're ready to reheat it on Christmas Day. NOTE: A hot steamy kitchen is not ideal!
-a
+1. Recipe From Jamie Oliver website
