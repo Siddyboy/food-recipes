@@ -7,19 +7,17 @@ Chopped apples would make a great addition – add them in the final hour of coo
 
 ## Ingredients
 
-- Lamb shoulder, neck, or leg, cut into chunks 900 g
-- Olive oil 1 tbsp
-- Onion, chopped 1
-- Carrots cut into chunks 3
-- Ras-el-hanout 2 tsp
-- Ground cumin 1 tsp
-- Tomato puree 1 tbsp
-- Chicken or lamb stock cube
-- Sweet potato in chunks 1
-- Dried cherries 30 g
-- Honey 1 tsp
-- Coriander chopped half a bunch
-- (Couscous to serve)  
+- Vegetable oil 1 tbsp
+- Pork shoulder steaks 4, about 750g, cut into large chunks
+- Onion 1, chopped
+- Leek 1, chopped
+- Carrot 1, chopped
+- Woody herbs 1 bundle (bouquet garni) – 2 bay leaves, 3 sage leaves and 4 thyme sprigs, plus a few thyme leaves to serve
+- Chicken stock 1 cube
+- Dijon mustard 2 tsp
+- Cider vinegar 1 tbsp
+- Cornflour 2 tsp
+- Honey 1 tbsp
 
 ## Method
 
@@ -44,44 +42,8 @@ Chopped apples would make a great addition – add them in the final hour of coo
 
 
 Cassie Best
-Serves 4
-Easy
-Prep: 
-15 mins
-Cook: 
-6 hrs - 8 hrs
-A star rating of 4.5 out of 5.
-141 ratings
-Rate
-78 comments
-Cosy up on cold nights with our comforting slow cooker pork casserole. Chopped apples would make a great addition – add them in the final hour of cooking
-Read more
-Freezable
-Egg-free
-Low sugar
-Nut-free
-Try our app
-Showing items 1 to 3 of 6
 
-Ingredients
-Nutrition
-1 tbsp vegetable or rapeseed oil
-4 pork shoulder steaks
-(about 750g), cut into large chunks
-1 onion
-chopped
-1 leek
-chopped
-1 carrot
-chopped
-bundle of woody herbs
-(bouquet garni) – we used 2 bay leaves, 3 sage leaves and 4 thyme sprigs, plus a few thyme leaves to serve
-1 chicken stock
-cube
-2 tsp Dijon mustard
-1 tbsp cider vinegar
-2 tsp cornflour
-1 tbsp honey
+
 Ad
 
 
