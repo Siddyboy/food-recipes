@@ -2,10 +2,10 @@
 
 ## Ingredients
 
-Flour 500 g
-Salt 10 g
-Yeast 7 g sachet
-Water 450 ml
+- Flour 500 g
+- Salt 10 g
+- Yeast 7 g sachet
+- Water 450 ml
 
 ## Method
 
