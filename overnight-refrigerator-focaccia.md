@@ -3,7 +3,7 @@
 ## Ingredients
 
 - Flour 500 g
-- Salt 10 g
+- Salt 10 g - use two level teaspoons?
 - Yeast 7 g sachet
 - Water 450 ml
 
