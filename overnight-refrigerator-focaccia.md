@@ -3,7 +3,7 @@
 ## Ingredients
 
 - Flour 500 g
-- Salt 10 g - use two level teaspoons?
+- Salt 10 g - try 5 g!
 - Yeast 7 g sachet
 - Water 450 ml
 
@@ -30,3 +30,4 @@
 If you are using a tea towel, consider securing it with a rubber band to make a more airtight cover.
 If you do not slick the dough with enough oil, you risk the dough drying out and forming a crust over the top layer.
 2.  A 230 by 330 pan is good.
+3.  10 g of salt was very salty!  Try 5 g next time.
