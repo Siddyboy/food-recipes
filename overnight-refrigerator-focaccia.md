@@ -30,4 +30,5 @@
 If you are using a tea towel, consider securing it with a rubber band to make a more airtight cover.
 If you do not slick the dough with enough oil, you risk the dough drying out and forming a crust over the top layer.
 2.  A 230 by 330 pan is good.
-3.  10 g of salt was very salty!  Try 5 g next time.
+3.  10 g of salt was very salty!  Try 5 g next time.  5 g is good.
+4.  Try buttering the pan next time.  Oiling didn't stop the side sticking.
