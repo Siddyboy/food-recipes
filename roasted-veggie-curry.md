@@ -11,6 +11,7 @@ I’ve kept things fairly gentle on the spice front so that all my kids will giv
 I’m also giving you a cheat’s naan, which all my kids fight over.
 
 ## Ingredients
+
 - Madras curry paste - 1 heaped teaspoon
 - Olive oil
 - Red wine vinegar
@@ -27,6 +28,7 @@ I’m also giving you a cheat’s naan, which all my kids fight over.
 - Frozen peas 100 g
 
 ### Stuffed Naan
+
 - Unsalted butter 1 small knob
 - Cloves 6
 - Cinnamon stick half
@@ -36,6 +38,7 @@ I’m also giving you a cheat’s naan, which all my kids fight over.
 - Feta cheese 100 g
 
 ## Method
+
 1. Preheat the oven to 200ºC.
 2. In a large roasting tray, mix the curry paste with a pinch of sea salt, 2 tablespoons of oil and 1 tablespoon of vinegar.
 3. Wash the parsnip, carrots, and butternut squash (we’re leaving the skins on).  Quarter the parsnip lengthways, remove the fluffy core and chop into bite-sized chunks (about 2cm), adding to the tray as you go.
@@ -54,5 +57,6 @@ I’m also giving you a cheat’s naan, which all my kids fight over.
 16. Slice up your naan and serve up with your curry at the table. Nice with a dollop of yoghurt and any chutney or pickles, if you like.
 
 ## Notes
+
 1. From "Jamie: Keep Cooking and Carry On"
 2. Leftover curry paste? Mix a little with natural yoghurt for a speedy dip to eat with poppadoms. Or add some to a tray of roasted veg for beautiful flavour.
