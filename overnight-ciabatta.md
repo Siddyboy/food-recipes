@@ -1,4 +1,4 @@
-# Overnight Ciabatta
+# Overnight Refrigerator Ciabatta
 
 Four ingredient, no-knead.
 
