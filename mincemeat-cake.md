@@ -31,3 +31,5 @@ Serves 8
 - Second time tried 160 C for 60 min but could have done with +10 min more.
 - 24 Dec 2020, tried 160 C for 45 min.
 - 16 Dec 2022, tried 150 C for 45 min. Used double qty +25 cm tin.
+- 5 Dec 2025, took 70 min at 150 C to cook double quantities in the 25 cm diameter springform tin.
+- 
