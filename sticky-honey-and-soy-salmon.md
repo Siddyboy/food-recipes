@@ -11,7 +11,7 @@ An epic yet simple combo of sweet sticky fish, rice, and veg, for two lucky peop
 ## Ingredients
 
 - Brown rice 150 g
-- Tenderstem vroccolo 160 g
+- Tenderstem broccoli 160 g
 - Reduced-salt soy sauce 2 tbsp
 - Limes 2
 - Sesame seeds 2 tsp
