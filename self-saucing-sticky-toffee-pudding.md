@@ -27,10 +27,11 @@ Combine sticky toffee pudding sponge with a generous helping of chocolate chunks
 - Cocoa powder 30 g
 
 ## Method
+
 1. Put the dates in a food processor and pour in 300 ml boiling water. Leave to soak for 30 mins.
 1. Meanwhile, make the sauce by tipping all the ingredients, a big pinch of salt and 300 ml boiling water into a pan, then whisk over a medium heat and simmer for 2 mins.
 1. Pour into a jug and leave to cool slightly.
-1. Once the dates are soaked, blitz them and thier water until you have smooth paste.  Leave to cool slightly.
+1. Once the dates are soaked, blitz them and their water until you have smooth paste.  Leave to cool slightly.
 1. Butter a deep 35 x 25cm dish.
 1. Heat oven to 160 C.
 1. In a large bowl beat together the butter and sugar for 3 mins until smooth.
